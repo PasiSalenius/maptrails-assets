@@ -1,0 +1,1 @@
+# maptrails-assets
